@@ -7,7 +7,6 @@
 
 - ⚡ Fun fact **I listen to songs that I don’t understand.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
